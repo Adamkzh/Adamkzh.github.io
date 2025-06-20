@@ -1,1 +1,0 @@
-# Adamkzh.github.io
